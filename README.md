@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Feelyng
+- 👀 I’m interested in handicrafts
+- 🌱 I’m currently learning Python, SQL
+- 💞️ I’m looking to collaborate on ╮(˘ ､ ˘)╭
+- 📫 How to reach me feevanse@gmail.com
